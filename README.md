@@ -1,4 +1,4 @@
-https://www.mediafire.com/file/fph3u8jkl8a1in8/©+RIKKA+TAKANASHI.zip/file
+
 <p align="center">
 <img src="https://github.com/zeeone-ofc/Haruka-Md/blob/v1/media/Haruka.jpg" alt="ALPHA BOT" width="100"/>
 
